@@ -1,4 +1,4 @@
-# Hi, I'm Krishna 👋
+# Hi, I'm Krishna Kalyan 👋
 
 🎯 Full-Stack Developer | Data Analyst | ML Engineer — Hyderabad, India
 
